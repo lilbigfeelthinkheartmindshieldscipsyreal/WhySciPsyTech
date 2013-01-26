@@ -1,0 +1,1 @@
+If Google Docs linked together profiles, follows, favorites, reposts and remixing, plus important memory-enhancing long-term-view universal revision history, it could show Quora and Facebook and Reddit how important it is to add features, that add real life respects.
